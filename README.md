@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently persuing a BTech degree.
+🔭 I have completed my BTech in 2025 & am currently building myself.
 
 
 ## 🌐 Socials:
